@@ -1,5 +1,5 @@
 
-# ldinis1's Website
+# The Prigge Lab
 
 Visit **[website url](#)** 🚀
 
